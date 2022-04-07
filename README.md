@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @melexinio
+- 👀 I’m interested in learning Coding as a complete beginner !
+- 🌱 I’m currently learning WTF is you guys going here!
+- 💞️ I’m looking to collaborate on anythig that can help me 
